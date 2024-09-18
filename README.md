@@ -4,7 +4,7 @@
 **Tina Blair**  
 [tina.web.developer@gmail.com](mailto:tina.web.developer@gmail.com)
 
-## Try the Game - Copy and paste this link for the download
+## Try the Game - Click or copy and paste this link for the download
 https://tinablair.ca/games/muffin-clicker-course-tutorial/MuffinClicker_Sep2024.exe
 
 ## How to Play
